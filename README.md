@@ -9,4 +9,4 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![](https://media1.tenor.com/m/dhREnahujTUAAAAd/gojo-jujutsu-kaisen.gif)
+![](https://c.tenor.com/dhREnahujTUAAAAd/tenor.gif)
